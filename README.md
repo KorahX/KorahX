@@ -17,4 +17,4 @@ Missing socials are in **https://korahx.dborras.com**
 
 ## 📶 Website
 
-**https://mystical.es**
+**https://korahx.dborras.com**
